@@ -7,7 +7,7 @@ Behind it, he finds a magical world of unicorns living in perfect piece and harm
 
 ## Plot
 
-Kevin woke to the sound of traffic. The sky was gray.
+Kevin woke to the sound of traffic. Staring out the window of his room, the dreariness of the city was worsened as the sky began to darken.
 After his typical breakfast, of toast and an egg, he left for school.
 Normally Kevin would have walked down Bleaker streat, but today there was construction and he decided to take Flanders behind the zoo.
 
