@@ -22,6 +22,8 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+Suddenly, the zoo keeper leapt out of the fern bushes and challenged Kevin to a duel of the minds! If Kevin could defeat the zoo keeper, Kevin would be given the opportunity to have one wish granted by the Unicorn King.
+
 After completing the Trials of the Zoo, Kevin was granted a meeting with the Unicorn King who granted him magic powers.
 The end.
 
